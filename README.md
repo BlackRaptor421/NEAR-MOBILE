@@ -1,2 +1,2 @@
 # NEAR-MOBILE 1
-Brief description 188//8887766554433221100112233445566778899
+Brief description 
